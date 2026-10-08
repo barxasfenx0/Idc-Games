@@ -218,4 +218,4 @@ IDC Games is available as a complete free version with all features unlocked and
 Ready to embark on your gaming adventure? Download IDC Games now and start exploring a world of exciting titles!
 
 ---
-**Last updated:** 2026-10-07 20:15:23 UTC
+**Last updated:** 2026-10-08 00:30:32 UTC
